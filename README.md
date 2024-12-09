@@ -1,1 +1,1 @@
-# Ci-ncia-ou-consequ-ncia
+# Ciêcia-ou-consequência
